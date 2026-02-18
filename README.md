@@ -1,1 +1,0 @@
-# yosephyavetsanggu-uasdaskapp
